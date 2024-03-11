@@ -2,7 +2,7 @@
 - 👀 I’m interested in technology 
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaborate on robots 
-- 📫 How to reach me phuongthi0411@gmail.com 
+- 📫 How to reach me phuongthi0411@gmail.com and vothi86@outlook.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
